@@ -1,0 +1,1 @@
+just a calculator. this is actually pretty useful, (although theres so many out there so this gets overshadowed)![D026C6D5-8E8E-4471-8084-CADA072EEC02](https://github.com/user-attachments/assets/844bf4a6-2481-4299-9290-5d0b2633ceda)
